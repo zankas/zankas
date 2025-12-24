@@ -4,7 +4,7 @@
 <img src="https://files.catbox.moe/6apcff.gif"/> 
 <br><sub> ⑅⃛ : </sub> </a> Frei / till ﹟19<sup>(15/07)</sup> <b>any prns</b>! ita eng.
 <img src="https://files.catbox.moe/ewa9m3.gif"/> C+H okay-ish. I get bored of it easily. but feel free to interact! ￬￬<br>
-<a href="https://fluffle.cc/lighthouse">website for more pony town boundaries.</a>
+<a href="https://fluffle.cc/lighthouse">click for more pony town boundaries.</a>
 <br> <b>I block freely</b> don't be weird.
 <br>
   <br> <sub> <em>Fu orostor is me BTW</em></sub> </a>
