@@ -1,3 +1,4 @@
+![Views Counter](https://views-counter.vercel.app/badge?pageId=zankas&leftColor=63a692&rightColor=5f8eb3&type=total&label=patients&style=lower) 𓏼𓏼◜⠀⠀⠀⠀ ͡ ͜͝⌣◌ ***Frei***'s info 🌱
 <p align="center">
   <img src="https://files.catbox.moe/6i0dd7.gif"/>
 <br>  <sup><b>...　 ‎ <a href="https://rentry.co/FuHii">rentry</a> 　╱　　<a href="https://x.com/bloodyluu">twitter</a>　　　𓏼 ͜͜✚ ‎ </b></sup><br>
@@ -9,5 +10,3 @@
 <br>
   <br> <sub> <em>Fu orostor is me BTW</em></sub> </a>
   <img src="https://file.garden/Z4_uMXj5okOfzfmz/fuorostor.gifv" alt="Fu"/> </p>
-
-![Views Counter](https://views-counter.vercel.app/badge?pageId=zankas&leftColor=63a692&rightColor=5f8eb3&type=total&label=patients&style=lower)
