@@ -9,3 +9,5 @@
 <br>
   <br> <sub> <em>Fu orostor is me BTW</em></sub> </a>
   <img src="https://file.garden/Z4_uMXj5okOfzfmz/fuorostor.gifv" alt="Fu"/> </p>
+
+![Views Counter](https://views-counter.vercel.app/badge?pageId=zankas&leftColor=63a692&rightColor=5f8eb3&type=total&label=patients&style=lower)
