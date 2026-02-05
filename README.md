@@ -1,7 +1,7 @@
-𓏲𑁘 ![Views Counter](https://views-counter.vercel.app/badge?pageId=zankas&leftColor=2c2d36&rightColor=2b4729&type=total&label=patients&style=lower) 𓏼𓏼◜⠀⠀⠀⠀ ͡ ͜͝⌣◌ ***Frei***'s info 🌱
+𓂁𓂄 ![Views Counter](https://views-counter.vercel.app/badge?pageId=zankas&leftColor=969632&rightColor=6f8596&type=total&label=patients&style=lower) 𓏼𓏼◜⠀⠀⠀⠀꒰ ͜ ***Frei***'s info ***!!***
 <p align="center"> <sup><b>...　 ‎ my links˒</b> ‎  ‎  ‎ <a href="https://rentry.co/yaoshi">rentry</a> 　╱　　<a href="https://fluffle.cc/anaxa">other</a>　</sup> <br>
-  <img src="https://files.catbox.moe/6i0dd7.gif"/>
-<br><sub> 💤. ݁˖ : </sub> </a> frei/till/<a href="https://rentry.co/cannibalising">more</a>. <b>19</b> <sup>(15/07)</sup> <b>any prns</b>. italian.<br>
+  <img src="https://i.postimg.cc/qqRGYFB5/20260205-025706.jpg"/>
+<br><sub> 🌱.݁˖ : </sub> </a> frei/till/<a href="https://rentry.co/cannibalising">more</a>. <b>19</b> <sup>(15/07)</sup> <b>any prns</b>. italian.<br>
 ─   ₎   #Anaxakisser #Dottorekisser #Flinskisser<br>
 <s>(greedy fuck)</s> <br>
 <img src="https://files.catbox.moe/ewa9m3.gif"/> <b>┈┈┈┈┈┈┈┈ ✚ ྀི༷།</b><br> 
