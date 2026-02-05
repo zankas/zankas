@@ -4,7 +4,7 @@
 <br><sub> 🌱.݁˖ : </sub> </a> frei/till/<a href="https://rentry.co/cannibalising">more</a>. <b>19</b> <sup>(15/07)</sup> <b>any prns</b>. italian.<br>
 ─   ₎   #Anaxakisser #Dottorekisser #Flinskisser<br>
 <s>(greedy fuck)</s> <br>
-<img src="https://files.catbox.moe/ewa9m3.gif"/> <b>┈┈┈┈┈┈┈┈ ✚ ྀི༷།</b><br> 
+<img src="https://64.media.tumblr.com/c440567bd3ff07717b3085cedbc1034b/22611a9624a1f186-78/s250x400/540e7560a154f28b632681b9bc241659ddcd3ed5.gif"/><br> 
 <b> pony town shit, read okay...?</b> <br>
 C+H really ok with oomfs! I get bored of it easily if you're a stranger. but feel free to interact! I don't bite. ￬￬<br>
 ⚠️I don't wanna type too much, so <a href="https://fluffle.cc/lighthouse">click here for more pony town boundaries.</a>
