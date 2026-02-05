@@ -1,5 +1,5 @@
 𓏲𑁘 ![Views Counter](https://views-counter.vercel.app/badge?pageId=zankas&leftColor=63a692&rightColor=5f8eb3&type=total&label=patients&style=lower) 𓏼𓏼◜⠀⠀⠀⠀ ͡ ͜͝⌣◌ ***Frei***'s info 🌱
-<p align="center"> <sup><b>...　 ‎ my links˒</b> ‎  ‎  ‎ <a href="https://rentry.co/FuHii">rentry</a> 　╱　　<a href="https://fluffle.cc/anaxa">other</a>　</sup> <br>
+<p align="center"> <sup><b>...　 ‎ my links˒</b> ‎  ‎  ‎ <a href="https://rentry.co/yaoshi">rentry</a> 　╱　　<a href="https://fluffle.cc/anaxa">other</a>　</sup> <br>
   <img src="https://files.catbox.moe/6i0dd7.gif"/>
 <br><sub> 💤. ݁˖ : </sub> </a> frei/till. <b>19</b> <sup>(15/07)</sup> <b>any prns</b>. italian.<br>
 ─   ₎   #Anaxakisser #Dottorekisser #Flinskisser<br>
