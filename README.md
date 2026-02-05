@@ -6,6 +6,6 @@
 <s>(greedy fuck)</s> <br>
 <img src="https://files.catbox.moe/ewa9m3.gif"/> <b>┈┈┈┈┈┈┈┈ ✚ ྀི༷།</b><br> 
 <b> pony town shit, read okay...?</b> <br>
-C+H okay only with oomfs. I get bored of it easily if you're a stranger. but feel free to interact! I don't bite. ￬￬<br>
+C+H really ok with oomfs! I get bored of it easily if you're a stranger. but feel free to interact! I don't bite. ￬￬<br>
 ⚠️I don't wanna type too much, so <a href="https://fluffle.cc/lighthouse">click here for more pony town boundaries.</a>
-Also, <br> <b>I block freely</b> just don't be weird.</p>
+Also, <br> <b>I Hide freely</b> just don't be weird.</p>
