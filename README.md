@@ -11,5 +11,5 @@ C+H really ok with oomfs! I get bored of it easily if you're a stranger. but fee
 Btw, <br> <b>I Hide freely</b>. just don't be weird.</p>
 
 <p align="center">჻჻჻჻჻ 🍀 ～ <b> observe </b> 𓈒 ꒪⋮ </p>
-<sup> <b> anywa look at this gorgeous drawing oomf @/STARSAREFADINGAWAY did for me..my gorgeous wife..</b> </sup>
+<b> lookat how gorgeous oomf @/STARSAREFADINGAWAY did mywife..</b>
 <img src="https://i.postimg.cc/LsRfKpqm/NNGch-MBv-TUuxqo-PVj-IIh.png"/>
