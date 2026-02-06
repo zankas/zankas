@@ -9,3 +9,6 @@
 C+H really ok with oomfs! I get bored of it easily if you're a stranger. but feel free to interact! ￬￬<br>
 <b>I don't wanna type too much</b>, so <a href="https://fluffle.cc/lighthouse">click here for more pony town boundaries.</a>!!! 
 Btw, <br> <b>I Hide freely</b>. just don't be weird.</p>
+
+<sup> anywa look at this gorgeous drawing oomf @/STARSAREFADINGAWAY did for me..my gorgeous wife..</sup>
+<img src="https://i.postimg.cc/LsRfKpqm/NNGch-MBv-TUuxqo-PVj-IIh.png"/>
